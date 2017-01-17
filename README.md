@@ -1,2 +1,6 @@
 # hello-world
-This mark the beginning of my return to this interest.
+Hello.
+This Marks The Beggining Of My Return To This Interest Of Mine.
+Thank You.
+Enjoy.
+Goodbye.
